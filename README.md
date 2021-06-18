@@ -1,2 +1,2 @@
-# PhoenixZ
-Connecting Un-Connected to the Connected 🦄
+# Equivoque
+I Greet you with a random Joke 🤪
